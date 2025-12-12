@@ -20,6 +20,17 @@
 
 remembæred @20240505 by d'bARgenetic_way & SAMI 🚩 ☧IK 🔰 d₽.♭Å☧eAu. 
 
+___
+
+linked to [SAAMi flaggan](https://sv.wikipedia.org/wiki/Samiska_flaggan)
+___
+
+<img width="600" height="770" alt="image" src="https://github.com/user-attachments/assets/25351dc3-8d3c-4d90-9587-c5eaeea3ba05" />
+
+___
+___
+
+
 # ☧ Ж_QµAИТТ_тт 
 
 hARmoniclick pi
