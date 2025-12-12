@@ -16,10 +16,27 @@
 
 
 
-# HÅRmიниск Пи ☰ 3.142857142857143 (quantics pi ㅎი⚻), remembæred @20240505 by d'bARgenetic_way & SAMI 🚩 ☧IK 🔰 d₽.♭Å☧eAu. 
+### HÅRmიниск Пи ☰ 3.142857142857143 (quantics pi ㅎი⚻)
+
+remembæred @20240505 by d'bARgenetic_way & SAMI 🚩 ☧IK 🔰 d₽.♭Å☧eAu. 
+
+# ☧ Ж_QµAИТТ_тт 
+
+hARmoniclick pi
+
+<img width="720" height="228" alt="image" src="https://barionleg.github.io/3.142857142857143/3,142857142857143.gif" />
+
+___
+___
+
+<img width="420" height="400" alt="image" src="https://github.com/user-attachments/assets/86a0d406-defa-45c4-889b-29afc4b5a447" />
+
+88 && 108 
+
+<img width="915" height="459" alt="image" src="https://github.com/user-attachments/assets/c6c85237-0fc8-462a-9ea1-3e6987f07bb0" />
 
 
-# Repository based on COMPOSARC TEMPLATE ci_temp A₽p html [hимик тАбЛи©А℞ мен'Де Лёв](https://aibolem.github.io/00/)
+#### Repository based on COMPOSARC TEMPLATE ci_temp A₽p html [hимик тАбЛи©А℞ мен'Де Лёв](https://aibolem.github.io/00/)
 
 Temperature Visualisation
 ----------------------
