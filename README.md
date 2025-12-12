@@ -1,4 +1,8 @@
-# ci_temp A₽p html [hимик тАбЛи©А℞ мен'Де Лёв]
+# quant 元 3.142857142857143
+
+
+
+# based on COMPOSARC TEMPLATE ci_temp A₽p html [hимик тАбЛи©А℞ мен'Де Лёв]
 
 Temperature Simulation
 ----------------------
