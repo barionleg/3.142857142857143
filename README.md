@@ -1,6 +1,6 @@
 # quant 元 3.142857142857143
 
-<img width="720" height="228" alt="image" src="https://github.com/user-attachments/assets/8bc15181-5c79-4a6c-83c5-d8b1677e6fd5" />
+<img width="720" height="228" alt="image" src="https://barionleg.github.io/3.142857142857143/3,142857142857143.gif" />
 
 
 # based on COMPOSARC TEMPLATE ci_temp A₽p html [hимик тАбЛи©А℞ мен'Де Лёв]
