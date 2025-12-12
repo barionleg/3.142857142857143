@@ -1,3 +1,8 @@
+<link rel="shortcut icon" href="https://aibolem.github.io/00/taviconit.png" type="image/x-icon" />
+<meta property="og:description" content="Map created by µРАКЛიЯR ჼARdАвеЛИДЗЭ [ირაკლი ბარდაველიძე мери© löv|oviç 1974072802101973] under PseudoHuм ჼАЛÅДЮР henry bærnbærg in CARTO₽ by using my roots wordiginal fysi©hemiЭ€, ФизикА©hemiЭ€, ©hemiЭ€ вАРДигинАЛ СимвоЛы & Ångströmm УниверсаЛьные нØтNY Winclusive by EcohomeI©A E©ANÖTTSIKA u все склонения От А до Я && A _ Z, как и 国 
+字 @т ℞Äys ტ₽Ersonnage 50 000© " />
+<meta property="article:publisher" content="https://www.facebook.com/2OTAN" />
+
 # quant 元 3.142857142857143
 
 <img width="720" height="228" alt="image" src="https://barionleg.github.io/3.142857142857143/3,142857142857143.gif" />
