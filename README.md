@@ -1,3 +1,10 @@
+#### [тО* wiki](https://github.com/barionleg/3.142857142857143/wiki)
+
+*тО = key haerackloglifes by ЯRimix of ICRYLICA (Cyrilica) && TRANSLIT (Latain = La 🎋 ТАЙНА in past times), to simplify @intuitive stage (nivå) understandning of Physic Chemie symbols, and I guess also they punisched ARTZ or Doctors by same reason! ... and imagine it was based on lie ... anyway enjoy: 3.142857142857143 
+
+irakli bardavelid3e <reversalt bardavelid3e> э 3Де I Lёv a dRAw (dRAв); clearly message: e tri de I Löv a dRAw (my roots HABEL ЛЕВАН нიkoЛÆვიчიი )
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+
 <link rel="shortcut icon" href="https://aibolem.github.io/00/taviconit.png" type="image/x-icon" />
 <meta property="og:description" content="Map created by µРАКЛიЯR ჼARdАвеЛИДЗЭ [ირაკლი ბარდაველიძე мери© löv|oviç 1974072802101973] under PseudoHuм ჼАЛÅДЮР henry bærnbærg in CARTO₽ by using my roots wordiginal fysi©hemiЭ€, ФизикА©hemiЭ€, ©hemiЭ€ вАРДигинАЛ СимвоЛы & Ångströmm УниверсаЛьные нØтNY Winclusive by EcohomeI©A E©ANÖTTSIKA u все склонения От А до Я && A _ Z, как и 国 
 字 @т ℞Äys ტ₽Ersonnage 50 000© " />
