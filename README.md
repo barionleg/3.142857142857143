@@ -10,7 +10,7 @@ nanno barion enad (försäkrad förskar, eller med principe SAdgeogrძeЛი) s
 
 hellst n = små π i kyrillica och wissenschafliga språk & enad dialecter uPpbyggt på Univærsiellt <reværsallt> principer, då ordet stämmer från bege sidor och det uPp
 
-hellst på invigaren, i mitt genetysk root av Läkarvettenskapligt d'bARgeჼ (HögbÆ℞g HAgel Winstituttet 
+hellst på invigaren, i mitt genetysk root av Läkarvettenskapligt d'bARgeჼ (HögbÆ℞g HAgel Winstituttet CSi ) & TamadaWinstituttet i MOCKBARußi i future (zukunfst)
 
 nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 
