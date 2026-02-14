@@ -3,6 +3,15 @@
 *тО = key haerackloglifes by ЯRimix of ICRYLICA (Cyrilica) && TRANSLIT (Latain = La 🎋 ТАЙНА in past times), to simplify @intuitive stage (nivå) understandning of Physic Chemie symbols, and I guess also they punisched ARTZ or Doctors by same reason! ... and imagine it was based on lie ... anyway enjoy: 3.142857142857143 
 
 irakli bardavelid3e <reversalt bardavelid3e> э 3Де I Lёv a dRAw (dRAв); clearly message: e tri de I Löv a dRAw (my roots HABEL ЛЕВАН нიkoЛÆვიчიი )
+
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+
+nanno barion enad (försäkrad förskar, eller med principe SAdgeogrძeЛი) symbol ჼ vilket på Kyrilliska = Б (B) && på georgiska = ნ (N) 
+
+hellst n = små π i kyrillica och wissenschafliga språk & enad dialecter uPpbyggt på Univærsiellt <reværsallt> principer, då ordet stämmer från bege sidor och det uPp
+
+hellst på invigaren, i mitt genetysk root av Läkarvettenskapligt d'bARgeჼ (HögbÆ℞g HAgel Winstituttet 
+
 nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 
 <link rel="shortcut icon" href="https://aibolem.github.io/00/taviconit.png" type="image/x-icon" />
