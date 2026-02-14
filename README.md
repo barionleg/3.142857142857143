@@ -47,7 +47,7 @@ nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 
 # A = π*R²   The area of a circle is pi times the radius squared (A = π r²).
 
-# A = π*14² = 3.142857142857143*196 = 616.
+# A = π*14² = 3.142857142857143 * 196 = 616.
 
 
 
