@@ -1,5 +1,10 @@
 #### [тО* wiki](https://github.com/barionleg/3.142857142857143/wiki)
 
+uPpdated qPi animated intuitivt visualisation:
+
+<img width="720" height="228" alt="image" src="https://raw.githubusercontent.com/barionleg/3.142857142857143/refs/heads/gh-pages/3beta.gif" />
+
+
 *тО = key haerackloglifes by ЯRimix of ICRYLICA (Cyrilica) && TRANSLIT (Latain = La 🎋 ТАЙНА in past times), to simplify @intuitive stage (nivå) understandning of Physic Chemie symbols, and I guess also they punisched ARTZ or Doctors by same reason! ... and imagine it was based on lie ... anyway enjoy: 3.142857142857143 
 
 irakli bardavelid3e <reversalt bardavelid3e> э 3Де I Lёv a dRAw (dRAв); clearly message: e tri de I Löv a dRAw (my roots HABEL ЛЕВАН нიkoЛÆვიчიი )
