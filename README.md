@@ -4,6 +4,7 @@ uPpdated qPi animated intuitivt visualisation:
 
 <img width="720" height="228" alt="image" src="https://raw.githubusercontent.com/barionleg/3.142857142857143/refs/heads/gh-pages/3beta.gif" />
 
+[on gitbook](https://db-comrubo-c-sa-ch-union-oqtavae.gitbook.io/qpi/):  https://db-comrubo-c-sa-ch-union-oqtavae.gitbook.io/qpi/
 
 *тО = key haerackloglifes by ЯRimix of ICRYLICA (Cyrilica) && TRANSLIT (Latain = La 🎋 ТАЙНА in past times), to simplify @intuitive stage (nivå) understandning of Physic Chemie symbols, and I guess also they punisched ARTZ or Doctors by same reason! ... and imagine it was based on lie ... anyway enjoy: 3.142857142857143 
 
