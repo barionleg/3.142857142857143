@@ -1150,3 +1150,12 @@ https://gist.github.com/barionleg/2c7eb7adb06db6d9bfda16c8bf965993
 https://gist.github.com/barionleg/640611f359d6cc5a7723a00e9b291f2d
 
 https://github.com/barionleg/colorbrewerY/wiki/Voronoi_Spirals_II
+
+
+# gistviewer 
+
+https://github.com/barionleg/baegaistview/wiki
+
+# ©2026bAR_ДВÅР_ØС_hÄPбðბ
+
+აქ წერია ჼÐB შესაბამისად: новеРСаЛ ნაწარმოები: ноРРвæРсаЛ = clubი: CluðbI ноЯRвæ₽сkаЛ: ვოჯახიდ ჩChemiԐ̈CÅ$AнÅ©тРÄ ჩემი ე(hიკლი) კასანაშტრე ©928 ВÅㅎ퓨ÅЯRლი წლიდან
