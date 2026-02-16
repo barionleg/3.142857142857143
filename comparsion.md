@@ -35,7 +35,7 @@ it is double the value of pi, (τ = 2π).](https://www.google.com/search?q=tau+%
 
 [ტაუ მხოლოდ პი-ს 2-ზე გამრავლებაა? Pi არის წრის გარშემოწერილობასა და დიამეტრს შორის თანაფარდობა. ტაუ, მეორეს მხრივ, არის წრის გარშემოწერილობასა და რადიუსს შორის თანაფარდობა; მარტივად რომ ვთქვათ, ის პი-ს მნიშვნელობის ორმაგი მნიშვნელობისაა (τ = 2π).](https://www.google.com/search?q=tau+%3D+pi+*+2&sourceid=chrome&ie=UTF-8)
 
-<img width="960" height="747" alt="image" src="https://github.com/user-attachments/assets/ef74355c-2e04-4f37-ae04-d57981f77602" />
+<img width="960" height="747" alt="image" src="https://github.com/barionleg/colorbrewerY/blob/master/Clock/incirclick/tau.svg" />
 
 
 ___
