@@ -9,7 +9,7 @@ ___
 
 ### [on gitbook](https://db-comrubo-c-sa-ch-union-oqtavae.gitbook.io/qpi/):  
 
-https://db-comrubo-c-sa-ch-union-oqtavae.gitbook.io/qpi/
+[https://db-comrubo-c-sa-ch-union-oqtavae.gitbook.io/qpi/](https://db-comrubo-c-sa-ch-union-oqtavae.gitbook.io/qpi/)
 
 ___
 ___
