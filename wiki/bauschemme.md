@@ -1,3 +1,6 @@
+
+https://barionleg.github.io/3.142857142857143/wiki/bauschemme
+
 [Harmonic_series_(music).md](https://en.wikipedia.org/wiki/Harmonic_series_(music))
 
 [Cent_(music).md](https://en.wikipedia.org/wiki/Cent_(music))
