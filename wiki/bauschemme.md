@@ -77,4 +77,11 @@ https://www.calculatorsoup.com/calculators/physics/pressure.php
 
 [Användare:Aibolem](https://sv.wikipedia.org/wiki/Anv%C3%A4ndare:Aibolem)
 
-<img width="45" height="45" alt="image" src="https://github.com/user-attachments/assets/06ca3580-0416-429d-ab01-6030e620b9f9" />
+[<img width="45" height="45" alt="image" src="https://github.com/user-attachments/assets/06ca3580-0416-429d-ab01-6030e620b9f9" />
+](https://commons.wikimedia.org/wiki/File:©i.Moneტი.png)
+
+20261017 16:59
+
+<img width="61" height="35" alt="image" src="https://github.com/user-attachments/assets/6b7caebe-56ed-4965-8a7b-4d24aa951264" />
+
+
