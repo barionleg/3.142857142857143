@@ -63,7 +63,7 @@ ___
 
 <!--<img width="600" height="770" alt="image" src="https://github.com/user-attachments/assets/25351dc3-8d3c-4d90-9587-c5eaeea3ba05" />-->
 
-<img width="600" height="770" alt="image" src="https://raw.githubusercontent.com/barionleg/3.142857142857143/refs/heads/gh-pages/wiki/SAAMI_MOSAIC_3.142857142857143_ASCIIgnedted.jpg"/>
+<img width="600" height="770" alt="image" src="https://raw.githubusercontent.com/barionleg/3.142857142857143/refs/heads/gh-pages/wiki/SAAMI_MOSAIC_3.142857142857143_ASCIIgnadtic.jpg"/>
 
 
 ___
