@@ -13,7 +13,6 @@ ___
 
 ___
 
-https://raw.githubusercontent.com/barionleg/3.142857142857143/refs/heads/gh-pages/wiki/SAAMI_MOSAIC_3.142857142857143_ASCIIgnedted.jpg
 ___
 
 *тО = key haerackloglifes by ЯRimix of ICRYLICA (Cyrilica) && TRANSLIT (Latain = La 🎋 ТАЙНА in past times), to simplify @intuitive stage (nivå) understandning of Physic Chemie symbols, and I guess also they punisched ARTZ or Doctors by same reason! ... and imagine it was based on lie ... anyway enjoy: 3.142857142857143 
@@ -62,7 +61,10 @@ ___
 linked to [SAAMi flaggan](https://sv.wikipedia.org/wiki/Samiska_flaggan)
 ___
 
-<img width="600" height="770" alt="image" src="https://github.com/user-attachments/assets/25351dc3-8d3c-4d90-9587-c5eaeea3ba05" />
+<!--<img width="600" height="770" alt="image" src="https://github.com/user-attachments/assets/25351dc3-8d3c-4d90-9587-c5eaeea3ba05" />-->
+
+<img width="600" height="770" alt="image" src="https://raw.githubusercontent.com/barionleg/3.142857142857143/refs/heads/gh-pages/wiki/SAAMI_MOSAIC_3.142857142857143_ASCIIgnedted.jpg"/>
+
 
 ___
 ___
